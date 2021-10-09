@@ -12,7 +12,7 @@ Estaquia (reutilização de partes enraizadas)
 ## Substrato
 
 Bastante compostos orgânicos.  
-Aerado.
+Boa drenagem.
 
 Após o plantio, pode-se colocar apara de grama sobre o solo para manter a humidade, prevenir desenvolvimento de outras ervas, e ajudar a manter os compostos orgânicos no solo.
 
